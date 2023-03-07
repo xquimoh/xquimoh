@@ -1,4 +1,4 @@
-### 🌎 Hi! I'm Michelle
+### 🌎 Hi, I'm Michelle!
 
 - 😄 Pronouns: she/her
 - 🔭 I’m a lawyer, currently working on becoming a web developer and UX/UI designer
